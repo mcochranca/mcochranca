@@ -1,4 +1,4 @@
-<!---
+
 # California Health Collaborative’s integrative perinatal wellness program (s) support birthing people, moms, dads and their families at risk of a mood disorder. In addition, the perinatal wellness program (s) partner with medical providers, hospitals and behavioral health providers to create a comprehensive plan of care which supports both the patient, family, and the provider.
 ---
 ## ***We are advocates for not only maternal wellness but also for the mental health of the baby and father. We want to make sure that fathers can receive the support they need, so they can be a great dad and partner.***
@@ -26,4 +26,3 @@ The Maternal Wellness Coalition (MWC) consist of a group of community programs a
 Contact Us:
 
 ![image](https://github.com/mcochranca/mcochranca/assets/131500068/6c1df905-e70f-4fe3-8e9e-c3c05e13510e)
---->
