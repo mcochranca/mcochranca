@@ -1,10 +1,10 @@
 
-# California Health Collaborative’s integrative perinatal wellness program (s) support birthing people, moms, dads and their families at risk of a mood disorder. In addition, the perinatal wellness program (s) partner with medical providers, hospitals and behavioral health providers to create a comprehensive plan of care which supports both the patient, family, and the provider.
+### *Matthew is the sole designer and owner, who is passionate about providing high-quality digital marketing systems consulting services. In addition to consulting, he is dedicated to educating local small business owners on free and open source tools, empowering them to take control of their online presence. As a black designer, Matthew is committed to working with marginalized communities, offering free workshops and trainings in Modesto, California. Through his blog, he shares his expertise and insights on digital marketing, website design, and other related topics. Ultimately, Ingeniously is about helping businesses grow and succeed by providing affordable, effective, and accessible digital marketing solutions.*
 ---
-## ***We are advocates for not only maternal wellness but also for the mental health of the baby and father. We want to make sure that fathers can receive the support they need, so they can be a great dad and partner.***
 
-#### The Maternal Wellness Coalition (MWC) 
-   ***...focuses its efforts on identifying service gaps through the pathways model of care.  The Maternal Wellness Coalition (s) support birthing persons, moms, dads, families, organizations, medical and behavioral health providers, who work with perinatal families at risk of perinatal depression.  The MWC partners with elected officials, law enforcement, medical facilities, school districts, and community organizations to collaborate on various medical, mental wellness, as well as social determinants of health which impacts individuals, children and families. The MWC has stream-lined their resources for expecting moms, dads, and families to receive the best outcomes. Our monthly coalitions are currently accessible in  Fresno, Madera, and  Kings County, as well as a statewide collaborative.***
+
+#### For more California HPublic Health Resources
+
    
 JOIN OUR COALITION!
 ---
